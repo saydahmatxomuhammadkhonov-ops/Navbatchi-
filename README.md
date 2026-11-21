@@ -1,0 +1,2 @@
+# Navbatchi-
+Salom men dasturchman
